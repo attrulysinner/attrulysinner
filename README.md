@@ -1,2 +1,5 @@
-<img width="480" height="320" alt="wxj6mleEqsoNaTd4UB (2) (1)" src="https://github.com/user-attachments/assets/3c434663-4f3b-4765-b895-d711bbc9c16a" />
+ <img width="480" height="320" alt="dUfx1BkUgRCNLBGhdW" src="https://github.com/user-attachments/assets/65c1d2d6-d38d-4065-94ae-f9224579be9f" />
 
+[𝒫interest](./https://id.pinterest.com/nlkushimi/) ㅤㅤㅤㅤ[MY STRAWpage](./https://kiokofshiu.straw.page)ㅤㅤㅤㅤ[𝑅oblox account](./https://www.roblox.com/users/7538798760/profile) 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(atabook soon, and strawpage remake) 
