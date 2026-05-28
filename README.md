@@ -5,4 +5,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(strawpage remake later) 
 
-NOTE 2 : i hide people that makes me feel uncomfortable, though im not the type of person to get "easily uncomfy"
+  ㅤㅤㅤㅤㅤㅤㅤㅤNOTE 2 : i hide people that makes me feel uncomfortable, though im not the type of person to get "easily uncomfy"
