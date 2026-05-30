@@ -1,5 +1,6 @@
 
- <img width="480" height="320" alt="dUfx1BkUgRCNLBGhdW" src="https://github.com/user-attachments/assets/65c1d2d6-d38d-4065-94ae-f9224579be9f" />
+<img width="480" height="264" alt="O8q6abbMHyg5IVSDV3" src="https://github.com/user-attachments/assets/03a585ee-638e-4feb-8d01-60e23aca6781" />
+
 
 ㅤㅤㅤㅤㅤ   [ATABOOK](https://excalibur.atabook.org/)ㅤㅤ[STRAWPAGE](https://kiokofshiu.straw.page)ㅤㅤㅤㅤ
 
