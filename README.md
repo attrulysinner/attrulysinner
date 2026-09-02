@@ -3,13 +3,4 @@
 
 
 
-ㅤㅤㅤㅤㅤ   [ATABOOK](https://excalibur.atabook.org/)ㅤㅤ[STRAWPAGE](https://kiokofshiu.straw.page)ㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(strawpage remake later) 
-ㅤㅤㅤㅤ  
-ㅤㅤㅤㅤ 
-ㅤㅤㅤㅤ
-ㅤㅤㅤㅤ  
-ㅤㅤㅤㅤㅤㅤㅤㅤme draiwng
-<img width="3163" height="2134" alt="Untitled253_20260610133047" src="https://github.com/user-attachments/assets/e8a9cc7b-14cf-4ff2-af13-0f2e654c865d" />
-
+ㅤㅤㅤㅤㅤ   [ATABOOK](https://excalibur.atabook.org/)
